@@ -1,1 +1,1 @@
-It's first project
+https://github.com/uaa007/ono-tebe-nado/
